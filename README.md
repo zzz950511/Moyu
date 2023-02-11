@@ -1,2 +1,2 @@
 # -
-when u afk at work but don't want to 
+when u afk at work but don't want to get caught
